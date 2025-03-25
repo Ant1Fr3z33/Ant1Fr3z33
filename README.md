@@ -1,7 +1,5 @@
 ## 1nf0 ab0ut me!
-  ⟡ . ⊹ 0nly he\him pr0n0us
-  
-  always c+h!! but please d0n't try t0 interact with me if I'm afk\away status ::>_<:: ｡ ☆
+  ⟡ . ⊹ always c+h!! but please d0n't try t0 interact with me if I'm afk\away status ::>_<:: ｡ ☆
  
   I have pr0blems with anxiety and language skills, s0 plz be patient ╯︿╰
 
